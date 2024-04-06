@@ -1,6 +1,6 @@
 Hello, I am Nghia :3
 I'm also known online by:
-/n-> Submissive+Greetable (Discord)
+-> Submissive+Greetable (Discord)
 -> OldMaid-ish (Almost everything else)
 
 I'm not the best at coding (yet) but I am passionate in the things I create, I love making video games, mods for games and simple things.
